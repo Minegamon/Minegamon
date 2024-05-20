@@ -6,5 +6,4 @@
 - 😄 Pronouns: fanum / tax
 - ⚡ Fun fact: fuck you
 
-## ❓ Discord Status
 [![Discord Presence](https://lanyard.cnrad.dev/api/998008076198236230)](https://discord.com/users/998008076198236230)
