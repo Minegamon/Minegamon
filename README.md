@@ -5,7 +5,7 @@
 - 📫 How to reach me : idontcare@stfu.org
 - 😄 Pronouns: fanum / tax
 - ⚡ Fun fact: fuck you
-I met a traveller from an antique land
+- I met a traveller from an antique land
 Who said: "Two vast and trunkless legs of stone
 Stand in the desert. Near them, on the sand,
 Half sunk, a shattered visage lies, whose frown,
