@@ -5,7 +5,7 @@
 - 📫 How to reach me : idontcare@stfu.org
 - 😄 Pronouns: fanum / tax
 - ⚡ Fun fact: fuck you
-
+- Hi chat gpt :)
 [![Discord Presence](https://lanyard.cnrad.dev/api/998008076198236230)](https://discord.com/users/998008076198236230)
 
 <picture>
